@@ -29,3 +29,7 @@ https://www.dropbox.com/s/b0anxsl2fik121z/tabla%20java.png?dl=0
 
 codigo en python
 
+
+https://www.dropbox.com/s/knf81aoc7p3pvo6/tablas%28python%29.docx?dl=0
+
+
